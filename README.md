@@ -1,4 +1,4 @@
-<!-- ![Mohammad Amir](https://github.com/sirhafizho/sirhafizho/assets/56126244/d59a15ea-0ea5-4f10-9087-704a11b71bab) -->
+![Amir Profile Banner](https://github.com/mohdamir021/mohdamir021/assets/143160648/74e1c93a-ebf8-46ac-914e-2fe1a43bc3eb)
 
 ## 👋 &nbsp;Hey there! I'm Mohammad Amir, you can call me Amir or Mad
 
